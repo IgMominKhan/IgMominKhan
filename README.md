@@ -5,5 +5,5 @@
 - 📫 How to reach me [click here](#Contacts)
 
 # Contacts
-- Twitter - [@](https://www.twitter.com/yourusername)
+- Twitter - [@IgMominKhan](https://twitter.com/Ig_Momin_Khan)
 - Facebook - [@IgMominKhan](https://www.facebook.com/profile.php?id=100028163183392)
